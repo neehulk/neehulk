@@ -2,7 +2,7 @@
 - 👀 I’m interested in machine learning
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on generative machine learning
-- 📫 How to reach me instagram @neehulk
+- 📫 How to reach me? My instagram @neehulk
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I read classical literature
 
